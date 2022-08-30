@@ -1,1 +1,1 @@
-my first thing
+my first updating redme 
